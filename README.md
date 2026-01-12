@@ -25,6 +25,9 @@ the medias/games i play are dandy world, yuricontent, vocaloid/utaus, project se
 please do not interact if you are planning to harrass my friends(pro or not) and or me.
 </div> <div align="center">my non-proship friends most likely already know of my stance so dont bother them thanks
 </div> <div align="center">
+
+<br>
+  
 <details>
 <summary>further dni</summary>
   <br>
@@ -46,14 +49,15 @@ i'm a nonsharing yume with luka megurine dont act like u like her better i dont 
 <br>
 </details>
 
-<br>
 <img src="https://64.media.tumblr.com/31c7ced4ddcee30bd2073c9b889e4e40/4160be3cc2b84620-8c/s540x810/505524632c6b044a3b8f2045b0b7e29e76a8462c.gifv" width="650" height="400">
 
 <br>
+</div> <div align="center"> this is wip right now so some stuff may change 
+  <br>
 
-<img src="https://64.media.tumblr.com/cbe0e82ea8e27540693f69cbb48f5a6d/0bcd44abe4ef3a30-4c/s100x200/1ddc4dc348da54f8d9d0e2a5c4eb870260d16467.gifv" width="150" height="200">
-<img src="https://64.media.tumblr.com/e16fb5a16943fccda336d16c953ec678/0bcd44abe4ef3a30-64/s100x200/1b538f323b5f2896a6c3b27143e10d3f84a8f748.pnj" width="150" height="200">
-<img src="https://64.media.tumblr.com/a630511c264bd146e931f9cc055d5edf/11ac532f618616c1-87/s100x200/5fa7aa5ab5e54b5d0114e3fe51d44b3cbbaaac5b.pnj" width="150" height="200">
-<img src="https://64.media.tumblr.com/88c17b5f0689cc17bfb3686a66464f8f/b5cff48fb984d945-9c/s100x200/58834a2bc470324a044d66794389a647519c2443.pnj" width="150" height="200">
+<img src="https://64.media.tumblr.com/cbe0e82ea8e27540693f69cbb48f5a6d/0bcd44abe4ef3a30-4c/s100x200/1ddc4dc348da54f8d9d0e2a5c4eb870260d16467.gifv" width="100" height="150">
+<img src="https://64.media.tumblr.com/e16fb5a16943fccda336d16c953ec678/0bcd44abe4ef3a30-64/s100x200/1b538f323b5f2896a6c3b27143e10d3f84a8f748.pnj"  width="100" height="150">
+<img src="https://64.media.tumblr.com/a630511c264bd146e931f9cc055d5edf/11ac532f618616c1-87/s100x200/5fa7aa5ab5e54b5d0114e3fe51d44b3cbbaaac5b.pnj" width="100" height="150">
+<img src="https://64.media.tumblr.com/88c17b5f0689cc17bfb3686a66464f8f/b5cff48fb984d945-9c/s100x200/58834a2bc470324a044d66794389a647519c2443.pnj" width="100" height="150">
 
 ---
