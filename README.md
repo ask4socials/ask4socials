@@ -31,7 +31,7 @@ please do not interact if you are planning to harrass my friends(pro or not) and
 <details>
 <summary>further dni</summary>
   <br>
-there is no dni i'll just block u shrug, pro-contact for harmful paraphilias AND atleast content warnings 4 is mentions of cults and or ne0naz1s in any way thanks. int on thinice endogenic, willogenic just systems that aren't traumaformed THIN ICE ok ok
+there is no dni i'll just block u shrug, pro-contact for harmful paraphilias is a block AND atleast content warnings 4 is mentions of cults and or ne0naz1s in any way thanks. int on thinice endogenic, willogenic just systems that aren't traumaformed THIN ICE ok ok
   
 oh yeah also if you are "alternative" or "punk" and believes in censorship yeah dont come near me you are a poser LOL
 
