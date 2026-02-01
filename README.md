@@ -1,7 +1,7 @@
 ---
 
 </div> <div align="center">
-<img src="https://64.media.tumblr.com/6a56f472106bd384596f014470926538/599bb692443d8ae9-0f/s1280x1920/6bbd56361762898b88c14ca011a21a6f97b9751b.gifv" width="650" height="400">
+<img src="https://files.catbox.moe/arqrl4.png" width="650" height="400">
 
   ---
 
