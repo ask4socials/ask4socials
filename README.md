@@ -7,20 +7,17 @@
 
 </div> <div align="center">
 <br>
-16+ interact only, autistic + suspected plural disorder(be mindful of forgetfullness) >_>" 
+<img src="https://64.media.tumblr.com/e5645f597154f7f8a1d0ef6d712ce334/efcbf6d1f368a58f-08/s500x750/188e9c0f51d502d7b21730a2d178d8dc6321ed18.pnj" align="left" width="25%"> <p align="center"> 16+ interact only, autistic + suspected plurality disorder(be mindful of forgetfullness) >_>" 
 </div> <div align="center">
 i go by leyley i use he/him pronouns, c+h is awesome so come over even antis if u are chill
-  
-<br></div> <div align="center">
+
 <details>
 <summary>more about me</summary>
   <br>
 the medias/games i play are dandy world, yuricontent, vocaloid/utaus, project sekai, project diva(im ass.), osu i guess, honkai star rail!, terraria and possibly more .. i am lazy tbf ;-; chainsaw man, tokyo ghoul, mobpyscho100, bungou stray dogs, blackbutler, omori, splatoon overall, comics(dc/x-men) and probably more i forgot about<br> or didn't think to add here
 </details>
 
-
-
-<img src="https://64.media.tumblr.com/31c7ced4ddcee30bd2073c9b889e4e40/4160be3cc2b84620-8c/s540x810/505524632c6b044a3b8f2045b0b7e29e76a8462c.gifv" width="650" height="400">
+<br></div> <div align="center">
 
 please do not interact if you are planning to harrass my friends(pro or not) and or me.
 </div> <div align="center">my non-proship friends most likely already know of my stance so dont bother them thanks
@@ -36,11 +33,20 @@ there is no dni i'll just block u shrug, pro-contact for harmful paraphilias is 
 oh yeah also if you are "alternative" or "punk" and believes in censorship yeah dont come near me you are a poser LOL
 
 </details>
-<img src="https://64.media.tumblr.com/bc36a4af6ba8fe1a8a8e7e3eec7ab8be/e72f86adefc0d8a5-ab/s540x810/8eeb02d183027b743629ca51c9a007c805a9a393.pnj" width="650">
+
+  ---
+
+  ---
+
+  ---
+
+  
 
 </div> <div align="center">
 
-i am proship obviously if u can't tell. i am com+dark too
+</div> <div align="center">
+
+<img src="https://64.media.tumblr.com/caae1c27eab559da1a64579a46bf2590/0f273cb56a14e9ff-ee/s250x400/1fa162b8b31109216199fc06d8ea5567b3a74f9b.pnj" align="right" width="40%"> <p align="center"> i am proship obviously if u can't tell. i am com+dark too
 <br></div> <div align="center">
 <details>
 <summary>ships + yumes info</summary>
@@ -49,8 +55,12 @@ i'm a nonsharing yume with luka megurine dont act like u like her better i dont 
 <br>
 </details>
 
-<img src="https://64.media.tumblr.com/31c7ced4ddcee30bd2073c9b889e4e40/4160be3cc2b84620-8c/s540x810/505524632c6b044a3b8f2045b0b7e29e76a8462c.gifv" width="650" height="400">
+  ---
 
+  ---
+
+  ---
+  
 <br>
 </div> <div align="center"> this is wip right now so some stuff may change 
   <br>
