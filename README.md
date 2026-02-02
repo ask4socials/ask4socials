@@ -7,8 +7,8 @@
 
 </div> <div align="center">
 <br>
-<img src="https://64.media.tumblr.com/e5645f597154f7f8a1d0ef6d712ce334/efcbf6d1f368a58f-08/s500x750/188e9c0f51d502d7b21730a2d178d8dc6321ed18.pnj" align="left" width="25%"> <p align="center"> 16+ interact only, autistic + suspected plurality disorder(be mindful of forgetfullness) >_>" 
-</div> <div align="center">
+<img src="https://64.media.tumblr.com/e5645f597154f7f8a1d0ef6d712ce334/efcbf6d1f368a58f-08/s500x750/188e9c0f51d502d7b21730a2d178d8dc6321ed18.pnj" align="left" width="25%"> <p align="left"> 16+ interact only, autistic + suspected plurality disorder(be mindful of forgetfullness) >_>" 
+</div> <div align="left">
 i go by leyley i use he/him pronouns, c+h is awesome so come over even antis if u are chill
 
 <details>
@@ -17,11 +17,11 @@ i go by leyley i use he/him pronouns, c+h is awesome so come over even antis if 
 the medias/games i play are dandy world, yuricontent, vocaloid/utaus, project sekai, project diva(im ass.), osu i guess, honkai star rail!, terraria and possibly more .. i am lazy tbf ;-; chainsaw man, tokyo ghoul, mobpyscho100, bungou stray dogs, blackbutler, omori, splatoon overall, comics(dc/x-men) and probably more i forgot about<br> or didn't think to add here
 </details>
 
-<br></div> <div align="center">
+<br></div> <div align="left">
 
 please do not interact if you are planning to harrass my friends(pro or not) and or me.
-</div> <div align="center">my non-proship friends most likely already know of my stance so dont bother them thanks
-</div> <div align="center">
+</div> <div align="left">my non-proship friends most likely already know of my stance so dont bother them thanks
+</div> <div align="left">
 
 <br>
   
@@ -42,12 +42,12 @@ oh yeah also if you are "alternative" or "punk" and believes in censorship yeah 
 
   
 
-</div> <div align="center">
+</div> <div align="right">
 
-</div> <div align="center">
+</div> <div align="right">
 
-<img src="https://64.media.tumblr.com/caae1c27eab559da1a64579a46bf2590/0f273cb56a14e9ff-ee/s250x400/1fa162b8b31109216199fc06d8ea5567b3a74f9b.pnj" align="right" width="40%"> <p align="center"> i am proship obviously if u can't tell. i am com+dark too
-<br></div> <div align="center">
+<img src="https://64.media.tumblr.com/caae1c27eab559da1a64579a46bf2590/0f273cb56a14e9ff-ee/s250x400/1fa162b8b31109216199fc06d8ea5567b3a74f9b.pnj" align="right" width="40%"> <p align="right"> i am proship obviously if u can't tell. i am com+dark too
+<br></div> <div align="right">
 <details>
 <summary>ships + yumes info</summary>
   <br>
